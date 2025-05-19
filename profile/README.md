@@ -2,6 +2,8 @@
 
 **1v1.lol Unblocked 66** is an **epic third-person shooter** where fast reflexes, smart building, and precise aiming collide in intense head-to-head battles. Whether you're a fearless sniper, a blazing builder, or a savage shotgun warrior, this **legendary combat game** offers adrenaline-pumping action for players of all skill levels.
 
+## <a href="https://1kb.link/GnjgaK">👉 Click To Play 1v1 LOL Unblocked NOW 👈</a>
+
 ### 🎮 Game Overview
 
 * **Genre:** Shooter, Battle Royale, Building Simulator
